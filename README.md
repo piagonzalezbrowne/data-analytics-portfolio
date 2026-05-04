@@ -71,4 +71,4 @@ data-analytics-portfolio/
 
 ---
 
-*Contacto: [LinkedIn](https://linkedin.com/in/piagonzalezbrowne) · pia.gonzalez@email.com*
+*Contacto: piagonzalezbrowne@gmail.com +569 32233736*
